@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Bismi Khaira or you can usually call me Yaya
-- 👀 I’m interested in agriculture in a broad way, business development, creative industry and also Public Relation.
-- 🌱 I’m currently pursuing my bachelor degree majoring Plant Protection in IPB University.
+- 👋 Hi, I’m Bismi Khaira or simply you can just call me Yaya
+- 👀 I’m interested in agriculture in a broad way, business development, marketing and creative industry also Public Relation.
+- 🌱 I’m a bachelor of Agriculture majoring Plant Protection in IPB University.
 - 📫 How to reach me : bismikhairawn@gmail.com
 
 <!---
